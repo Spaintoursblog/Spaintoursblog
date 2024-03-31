@@ -1,7 +1,6 @@
-- 👋 Hi, I’m @Spaintoursblog
-- 👀 I’m interested in ...travel 
-- 🌱 I’m currently learning ...property management 
-- 💞️ I’m looking to collaborate on ...tourspain.blog 
+- 👋 Hi, I’m Debra Robb
+- 👀 25/01/1972
+- 💞️ ...tourspain.blog 
 - 📫 How to reach me ...08000016450
 - 😄 Pronouns: ...Spain Portugal Madrid 
 - ⚡ Fun fact: ...Barcelona football stadium tours and Madrid 
